@@ -12,6 +12,6 @@ and visualization. At the moment I am a beginner data analyst, now I am actively
 I'm looking for opportunities to collaborate on some interesting projects.  I will be very happy if my skills are useful)
 How to reach me ...
 ....📨email: ryab1olexnd@gmail.com
-    💬Telegram @Kvochcka
-    🎧Discord my Discord name is "kvocka"
+    💬Telegram: @Kvochcka
+    🎧 Discord: my Discord name is "kvocka"
 Thanks for...
