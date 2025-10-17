@@ -1,2 +1,2 @@
-Hi, I’m Kvochcka(real name Alexander,
-but it is not necessary)
+I’m Olexander
+Python learner | Data & web analytics | Exploring backend dev
